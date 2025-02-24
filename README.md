@@ -1,0 +1,1 @@
+# Takrorlash_2amaliy_vazifa
